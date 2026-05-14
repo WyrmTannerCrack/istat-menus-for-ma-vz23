@@ -1,4 +1,4 @@
-
+Enhance iStat Menus for macOS with iStat Menus for macOS ultimate Addon: search-enhancement & file-encryption, the #1 addon. Includes search-enhancement and file-encryption for a
 
 
 
